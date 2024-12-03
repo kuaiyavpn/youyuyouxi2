@@ -88,3 +88,4 @@ Can I watch more footage from Squid Game Season 2?
 抓紧你的连衣裤——更多 鱿鱼游戏 即将推出。 Hwang 确认第三季将于 2025 年推出，这将是该系列的最后一季。 的更多信息 有关Squid Game 告别赛季 ，请访问此处获取更新 。 
 
 同时， 观看 《鱿鱼游戏》 第 1 季 ，该剧现已在 Netflix 上直播。 
+![Squid Game Season 2](https://raw.githubusercontent.com/kuaiyavpn/youyuyouxi2/refs/heads/main/Squid%20Game%20Season%202.jpg)
